@@ -1,1 +1,1 @@
-# JPlatih
+# JPLatih
